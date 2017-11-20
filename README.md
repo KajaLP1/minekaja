@@ -1,0 +1,2 @@
+# minekaja
+hrava ,kamaradska
